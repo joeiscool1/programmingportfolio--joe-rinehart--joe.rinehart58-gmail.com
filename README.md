@@ -1,6 +1,6 @@
-# programmingportfolio--joe-rinehart--joe.rinehart58-gmail.com
+# programmingportfolio--joe-rinehart--joe.rinehart58@gmail.com
 
-programmingportfolio Joe rinehart joe.rinehart58-gmail.com
+programmingportfolio Joe rinehart joe.rinehart58@gmail.com
 
 
 MY GROUP PROJECT
